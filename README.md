@@ -1,0 +1,2 @@
+# socorro
+clt não remunerado 
